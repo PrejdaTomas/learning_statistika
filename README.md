@@ -1,0 +1,1 @@
+vycházím z youtube organicchemistrytutor
